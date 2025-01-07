@@ -1,0 +1,1 @@
+# sopyan-zulal-mubtada_221011400532_UAS_Kecerdasan-Buatan
